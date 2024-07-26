@@ -6,13 +6,3 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<!---
-vincent-ger-nzl/vincent-ger-nzl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-
-
-- 👋 Hi, I’m @vincent-ger-nzl
-- this is my memory
-- is a great deal on the other thing in the morning is the best thing I want you to be eligible for this course is designed and manufactured in Australia 🇦🇺
-- 
